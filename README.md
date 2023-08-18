@@ -1,1 +1,0 @@
-# Automation-store-Lab
